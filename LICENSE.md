@@ -1,4 +1,4 @@
-# 
+# rare CCleaner para PC addons é o melhor CCleaner para PC addons com suporte a unidades de rede e gravacao de macro. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
